@@ -1,2 +1,0 @@
-# Firsttobegin
-Author-Unknown
